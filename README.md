@@ -1,0 +1,1 @@
+# 8-sinif-dkab-brans-denemeler-32
